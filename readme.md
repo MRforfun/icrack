@@ -1,4 +1,4 @@
-# Icrack
+# Icrack instagram cracker
 
 ##### [*] A simple tools hack for instagram
 ##### [*] contact me +6282288934455
